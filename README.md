@@ -1,4 +1,4 @@
-# **👋 Hi, I’m @singhanveshak <<Anveshak Singh>>**
+# **👋 Hi, I’m Anveshak Singh**
 
 **I like: Cyrptography, physics and astronomy.**
 
